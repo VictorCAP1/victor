@@ -1,0 +1,3 @@
+# Olá meu nome e VictorGDC minha historia no futebol começou no flamengo, nasci no bairro de Bento Ribeiro, no Rio de Janeiro, terceiro filho de dois funcionários de uma companhia telefônica, a Telerj,eve uma infância humilde e, para extravasar a energia, começou a jogar futsal em pequenos clubes no começo da adolescência. Aos catorze anos, tentou entrar para a base do Flamengo, mas o time se recusava a pagar seu transporte para os treinos e, como não tinha dinheiro para tal, optou por um clube que ficava próximo de casa, o São Cristóvão. 
+
+![Alt](https://portalprudentino.com.br/imagens/portal/300_dpi_03_1432569890.jpg)
